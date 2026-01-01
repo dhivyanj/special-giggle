@@ -1,3 +1,3 @@
 # ethey nagarjunava
 
-1/1/26: Happy New Year
+1/1/26: Happy New Year mapla
